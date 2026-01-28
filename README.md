@@ -3,6 +3,8 @@
 
 ★
 
+~
+
 — [★] —  DAVE \ HIKER \ FUDSIM \ JUD
 
    — [★] — MULTIFANDOM FREAK N ARTIST !! I ENJOY MAKING FRIENDS AND LOOOVEE INTERACTING !! I'M HYPERACTIVE AND CAN GET A BIT AWKWARD SOMETIMES WHENEVER I'M TALKING TO SOMEONE NEW, BUT I HOPE WE CAN BE GREAT FRIENDS !!
@@ -13,6 +15,8 @@
 
 — [★] — BASIC DNI CRITERIA, I HIDE/BLOCK PEOPLE IF THEY ARE WORTHY OF IT. OR SOMETHING.
 
+~
+
 ★
 
-![Screenshot_2026-01-26-08-11-13-877_com discord-edit](https://github.com/user-attachments/assets/88ec339a-1241-4153-aacf-0948e6b5b206)
+###### ![Screenshot_2026-01-26-08-11-13-877_com discord-edit](https://github.com/user-attachments/assets/88ec339a-1241-4153-aacf-0948e6b5b206)
