@@ -36,6 +36,11 @@
 #### ~ ``" OH MARY, CONTRARY. HOW DOES YOUR GARDEN GROW ? "``
 ###### - SECRET GARDEN
 
+|
+
+
+##### Kler's a fuckin faggot, okay ? okay
+
 </div>
 
 ![Screenshot_2026-01-26-08-11-13-877_com discord-edit](https://github.com/user-attachments/assets/88ec339a-1241-4153-aacf-0948e6b5b206)
